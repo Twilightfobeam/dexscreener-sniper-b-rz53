@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with updated dexscreener sniper bot | low-cap-gem-detection + simulation-mode, the #1 dexscreener sniper bot. Includes low-cap-gem-detection and
 
 
 
